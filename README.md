@@ -1,6 +1,1 @@
-# teste1
-testando dnv
-back in black tantan
-calvo
-77777 bro
-CAIO WEBCOOKIE
+amor nao existe, apenas aparencia e sentimento mutuo
